@@ -1,2 +1,0 @@
-# lionesslegacyprints.com
-My website
